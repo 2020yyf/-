@@ -1,2 +1,1 @@
-# 233
-# $\huge\color{red}\texttt{233}$
+# 我是一个蒟蒻qwq
